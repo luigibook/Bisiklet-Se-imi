@@ -1,1 +1,1 @@
-# Bisiklet-Se-imi
+# Bisiklet-Secimi
